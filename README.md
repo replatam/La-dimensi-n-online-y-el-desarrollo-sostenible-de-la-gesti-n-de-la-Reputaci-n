@@ -1,4 +1,4 @@
-# La-dimensi-n-online-y-el-desarrollo-sostenible-de-la-gesti-n-de-la-Reputaci-n
+# La-dimension-online-y-el-desarrollo-sostenible-de-la-gestion-de-la-Reputacion
 El entorno online y el no virtual cuentan con sus propias reglas en materia de gestión de la reputación. Lo más importante en ambos es la percepción del público objetivo. Sin embargo, el primero se caracteriza por una mayor subjetividad por parte de las personas. 
 Una gestión de Reputación sostenible es aquella que abarca tanto el entorno online como el tradicional. El desafío es complementar ambas dimensiones y, al mismo tiempo, integrar las posibilidades que brinda cada una por separado. Trabajar con enfoques específicos es clave para lograr buenos resultados. También es fundamental pensar las acciones a corto, mediano y largo plazo. 
 https://replatam.com/la-dimension-online-y-el-desarrollo-sostenible-de-la-gestion-de-la-reputacion/
